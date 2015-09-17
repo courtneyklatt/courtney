@@ -1,2 +1,2 @@
 Lincoln, NE
-not Lincoln, NB
+Go Badgers!
